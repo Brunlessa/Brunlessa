@@ -11,6 +11,6 @@ Meu nome é Bruno Lessa
 
 
 
-(https://tenor.com/pt-BR/view/one-piece-luffy-luffy-fat-fat-luffy-goofy-luffy-gif-13217773602074167430)
+( https://tenor.com/pt-BR/view/one-piece-luffy-luffy-fat-fat-luffy-goofy-luffy-gif-13217773602074167430 )
 
   
