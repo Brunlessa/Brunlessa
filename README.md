@@ -7,7 +7,6 @@ Meu nome é Bruno Lessa
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-
-![](https://tenor.com/pt-BR/view/one-piece-luffy-luffy-fat-fat-luffy-goofy-luffy-gif-13217773602074167430)
+![](https://media1.tenor.com/m/t273D3EqiIYAAAAC/one-piece-luffy.gif)
 
   
